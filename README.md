@@ -1,1 +1,0 @@
-# menuju-negeri-sejuta-peradaban
